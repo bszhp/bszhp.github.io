@@ -14,11 +14,11 @@
 
 游戏
 
-[街机游戏电脑PC版三国战记合金西游恐龙快打单机游戏合集](https://pan.baidu.com/s/1tIgx0JZzvXaiSkMta2yshA)查看[密码](http://www.goukala.cn/product/6EDD39CCDD69B4DD)  
-[街机游戏安卓版三国战记合金西游恐龙快打单机游戏  合集](https://pan.baidu.com/s/132tQIMkwgxzBqdGL2llhMQ)查看[密码](http://www.goukala.com/product/D80E372FCBF680CE)  
-[小霸王游戏电脑PC魂斗罗冒险岛影子传说炸弹人等700+合集](https://pan.baidu.com/s/15sJ8YbelQD4uRrqogv6Yeg)查看[密码](http://www.goukala.com/product/861A187566A02C9A)  
-[王者荣耀全部英雄教学攻略上分技巧套路秘籍自学全套视频](https://pan.baidu.com/s/1QkSdNcXS2cyeILHJt_Xm8w)查看[密码](http://www.goukala.cn/product/9394DA06B9A59F37)  
-[英雄联盟意识技巧心态攻略上分教学全套自学视频合集自取](https://pan.baidu.com/s/14yqV5uFWbKr9kp6OAaGMiw)查看[密码](http://www.goukala.cn/product/00380AD6581274CB)  
+[街机PC版拳皇三国合金经典250+合集](https://pan.baidu.com/s/1tIgx0JZzvXaiSkMta2yshA)查看[密码](http://www.goukala.cn/product/6EDD39CCDD69B4DD)  
+[街机安卓拳皇三国合金经典500+合集](https://pan.baidu.com/s/132tQIMkwgxzBqdGL2llhMQ)查看[密码](http://www.goukala.com/product/D80E372FCBF680CE)  
+[小霸王PC魂斗罗冒险岛影子700+合集](https://pan.baidu.com/s/15sJ8YbelQD4uRrqogv6Yeg)查看[密码](http://www.goukala.com/product/861A187566A02C9A)  
+[王者荣耀上分技巧套路教学全套视频](https://pan.baidu.com/s/1QkSdNcXS2cyeILHJt_Xm8w)查看[密码](http://www.goukala.cn/product/9394DA06B9A59F37)  
+[英雄联盟意识技巧心态教学视频合集](https://pan.baidu.com/s/14yqV5uFWbKr9kp6OAaGMiw)查看[密码](http://www.goukala.cn/product/00380AD6581274CB)  
 
 
 资源素材
