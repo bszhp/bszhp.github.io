@@ -25,9 +25,9 @@
 
 [表情包微信必备聊天搞笑静态动态图](https://pan.baidu.com/s/1tdUoohPffj24c8X5FO6X1w)查看[密码](http://www.goukala.cn/product/00380AD6581274CB)  
 [音效包热门搞笑沙雕及各类拟声音效](https://pan.baidu.com/s/1KvHCUM13s6WKUtEbeM_iIg)查看[密码](http://www.goukala.cn/product/001E0136EF9D46CC)  
-[剧本文案](https://pan.baidu.com/s/1imdmJP3wtAalJnQpYh-pyQ)查看[密码](http://www.goukala.com/product/25DC07F6A2A65EE3)  
-[运营策划](https://pan.baidu.com/s/1pxSNYtIt8uwP1gErGgHFXQ)查看[密码](http://www.goukala.com/product/76D2A0E3E46EB8BD)  
-[素材包](https://pan.baidu.com/s/1Ky9jQ6O89QcQivywl8wSlg)查看[密码](http://www.goukala.com/product/87014A41F9780D31)  
+[剧本文案土味情话鸡汤小品话剧剧本](https://pan.baidu.com/s/1imdmJP3wtAalJnQpYh-pyQ)查看[密码](http://www.goukala.com/product/25DC07F6A2A65EE3)  
+[抖音快手头条系列热门运营策划课程](https://pan.baidu.com/s/1pxSNYtIt8uwP1gErGgHFXQ)查看[密码](http://www.goukala.com/product/76D2A0E3E46EB8BD)  
+[素材包这个我还没有编号等我编好先](https://pan.baidu.com/s/1Ky9jQ6O89QcQivywl8wSlg)查看[密码](http://www.goukala.com/product/87014A41F9780D31)  
 
 
 生活
@@ -42,16 +42,16 @@
 
 技巧
 
-[播音教程](https://pan.baidu.com/s/1EsAtURhFO3Tx8BwUA-bjJw)查看[密码](http://www.goukala.cn/product/D0731A40E1DB155C)  
+[播音主持语言表达口腔控制发声教程](https://pan.baidu.com/s/1EsAtURhFO3Tx8BwUA-bjJw)查看[密码](http://www.goukala.cn/product/D0731A40E1DB155C)  
 [唱歌教程唱歌技巧速成教学 KTV必备](https://pan.baidu.com/s/1j35b6inuCl4wyYcZeD9fvg)查看[密码](http://www.goukala.cn/product/47321CDC6FD1A7D4)  
-[化妆教程](https://pan.baidu.com/s/1La8LNd-_-g9yxRak4w9Qlg)查看[密码](http://www.goukala.com/product/D2A9C7439AF0CB90)  
-[聊天技巧聊天话题话术](https://pan.baidu.com/s/1edPHViF_81GLEcrE0ebJow)查看[密码](http://www.goukala.cn/product/5C43A84D0F008506)   
-[标准普通话训练视频科学发音矫正](https://pan.baidu.com/s/1oGVeNouxGBUrIzGcbenjvw)查看[密码](http://www.goukala.cn/product/6EDD39CCDD69B4DD)  
-[手机摄影教程](https://pan.baidu.com/s/1v6jysDLcNaJYSizNCMMCeg)查看[密码](http://www.goukala.com/product/D80E372FCBF680CE)  
-[单反摄影零基础入门到精通课程](https://pan.baidu.com/s/108DNlbcltkQPL3HiH2JVfQ)查看[密码](http://www.goukala.com/product/861A187566A02C9A)  
+[化妆教程美妆教学职场画眉修眉课程](https://pan.baidu.com/s/1La8LNd-_-g9yxRak4w9Qlg)查看[密码](http://www.goukala.com/product/D2A9C7439AF0CB90)  
+[聊天技巧人际交往高效话题话术课程](https://pan.baidu.com/s/1edPHViF_81GLEcrE0ebJow)查看[密码](http://www.goukala.cn/product/5C43A84D0F008506)   
+[标准普通话训练视频及科学发音矫正](https://pan.baidu.com/s/1oGVeNouxGBUrIzGcbenjvw)查看[密码](http://www.goukala.cn/product/6EDD39CCDD69B4DD)  
+[手机摄影参数光线场景后期全系教学](https://pan.baidu.com/s/1v6jysDLcNaJYSizNCMMCeg)查看[密码](http://www.goukala.com/product/D80E372FCBF680CE)  
+[单反摄影零基础入门到精通高级课程](https://pan.baidu.com/s/108DNlbcltkQPL3HiH2JVfQ)查看[密码](http://www.goukala.com/product/861A187566A02C9A)  
 [伪音教程男伪女伪百变声优配音教程](https://pan.baidu.com/s/1k0AMST8HuaTLT4jx23lsaw)查看[密码](http://www.goukala.cn/product/9394DA06B9A59F37)     
-WPS系列WORDEXCELPPT三合一全教程](https://pan.baidu.com/s/1TGrhr2MrAIqvlwa0athtLw)查看[密码](http://www.goukala.cn/product/00380AD6581274CB)  
-[营销策划案例 ](https://pan.baidu.com/s/1lOBzIxz_-ei9k63k_ly7fw)查看[密码](http://www.goukala.cn/product/00380AD6581274CB)  
+[WPS系列WORDEXCELPPT三合一全教程](https://pan.baidu.com/s/1TGrhr2MrAIqvlwa0athtLw)查看[密码](http://www.goukala.cn/product/00380AD6581274CB)  
+[营销策划各类活动庆典公关推广案例](https://pan.baidu.com/s/1lOBzIxz_-ei9k63k_ly7fw)查看[密码](http://www.goukala.cn/product/00380AD6581274CB)  
 
 
 [谷歌地球手机版](https://pan.baidu.com/s/16ZpHZMaPhJwU1LU5y92pzg)查看[密码](http://www.goukala.cn/product/001E0136EF9D46CC)  
