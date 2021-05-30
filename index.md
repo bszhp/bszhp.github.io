@@ -1,6 +1,5 @@
 ### 网络干货
 #### 本叔杂货铺致力于整理网络干货并提供优质的在线资源和专业系统的学习教程 让您享受物超所值的在线体验
-
 #### 工具   百度网盘
 #### 方法   1点击名称 2输入密码 3保存到网盘 4下载到本地
 [附：免费领取百度网盘体验会员](http://note.youdao.com/s/M3U4cqPJ)
@@ -47,9 +46,11 @@
 [WPS系WORDEXCELPPT三合一教程](https://pan.baidu.com/s/1TGrhr2MrAIqvlwa0athtLw)查看[密码](http://www.goukala.cn/product/00380AD6581274CB)  
 [营销策划各类活动庆典公关推广案例](https://pan.baidu.com/s/1lOBzIxz_-ei9k63k_ly7fw)查看[密码](http://www.goukala.cn/product/00380AD6581274CB)  
 
-[谷歌地球手机版](https://pan.baidu.com/s/16ZpHZMaPhJwU1LU5y92pzg)查看[密码](http://www.goukala.cn/product/001E0136EF9D46CC)  
-[谷歌地球PC版  ](https://pan.baidu.com/s/1015EuEqkUuv_YKBCRBEKzA)查看[密码](http://www.goukala.com/product/25DC07F6A2A65EE3)  
-[音乐软件手机版 ](https://pan.baidu.com/s/1wnaJAsEOmtWA7lyi7S3u_g)查看[密码](http://www.goukala.com/product/76D2A0E3E46EB8BD)  
-[音乐软件PC版   ](https://pan.baidu.com/s/1-wxmfwfVmVyvE9W_KAPpEQ)查看[密码](http://www.goukala.com/product/87014A41F9780D31)  
+#### 软件
+
+[谷歌地球安卓户外活动野营钓鱼必备](https://pan.baidu.com/s/16ZpHZMaPhJwU1LU5y92pzg)查看[密码](http://www.goukala.cn/product/001E0136EF9D46CC)  
+[谷歌地球电脑专业版3D高清卫星街景](https://pan.baidu.com/s/1015EuEqkUuv_YKBCRBEKzA)查看[密码](http://www.goukala.com/product/25DC07F6A2A65EE3)  
+[全网音乐安卓版可免费搜索收藏下载](https://pan.baidu.com/s/1wnaJAsEOmtWA7lyi7S3u_g)查看[密码](http://www.goukala.com/product/76D2A0E3E46EB8BD)  
+[音乐软件电脑版可免费搜索收藏下载](https://pan.baidu.com/s/1-wxmfwfVmVyvE9W_KAPpEQ)查看[密码](http://www.goukala.com/product/87014A41F9780D31)  
  
 ###  唯一咨询QQ 2587480752  微信 bsdzhp
