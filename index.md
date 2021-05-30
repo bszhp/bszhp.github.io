@@ -1,13 +1,13 @@
 ### 网络干货
-#### 本叔杂货铺致力于整理网络干货，提供优质的在线资源和专业系统的学习教程 让您享受物超所值的在线体验
+#### 本叔杂货铺致力于整理网络干货并提供优质的在线资源和专业系统的学习教程 让您享受物超所值的在线体验
 
 #### 工具   百度网盘
-#### 方法   1点击名称  2输入密码  3保存到网盘  4下载到本地
-
+#### 方法   1点击名称 2输入密码 3保存到网盘 4下载到本地
 [附：免费领取百度网盘体验会员](http://note.youdao.com/s/M3U4cqPJ)
 
-#### 活动期间转发到图片到任意三个百人以上群（微信群QQ群均可）  可免费获得一个资源密码   转发后添加微信bsdzhp索要密码 
-#### 唯一咨询  QQ 2587480752
+#### 福利礼包1 期间转发图片到任意三个百人以上群（微信群QQ群均可）  可免费获得一个资源密码   转发后添加微信bsdzhp发送截图并索要密码 仅限一次免费机会 
+#### 福利礼包2 购买任意资源教程赠送 全网音乐软件安卓pc版  免费小说阅读
+#### 唯一咨询  QQ 2587480752 微信 bsdzhp
 
 #### 游戏
 
@@ -17,7 +17,7 @@
 [王者荣耀上分技巧套路教学全套视频](https://pan.baidu.com/s/1QkSdNcXS2cyeILHJt_Xm8w)查看[密码](http://www.goukala.cn/product/9394DA06B9A59F37)  
 [英雄联盟意识技巧心态教学视频合集](https://pan.baidu.com/s/14yqV5uFWbKr9kp6OAaGMiw)查看[密码](http://www.goukala.cn/product/00380AD6581274CB)  
 
-#### 资源素材
+#### 素材
 
 [表情包微信必备聊天搞笑静态动态图](https://pan.baidu.com/s/1tdUoohPffj24c8X5FO6X1w)查看[密码](http://www.goukala.cn/product/00380AD6581274CB)  
 [音效包热门搞笑沙雕及各类拟声音效](https://pan.baidu.com/s/1KvHCUM13s6WKUtEbeM_iIg)查看[密码](http://www.goukala.cn/product/001E0136EF9D46CC)  
@@ -52,4 +52,4 @@
 [音乐软件手机版 ](https://pan.baidu.com/s/1wnaJAsEOmtWA7lyi7S3u_g)查看[密码](http://www.goukala.com/product/76D2A0E3E46EB8BD)  
 [音乐软件PC版   ](https://pan.baidu.com/s/1-wxmfwfVmVyvE9W_KAPpEQ)查看[密码](http://www.goukala.com/product/87014A41F9780D31)  
  
-###  唯一咨询QQ 2587480752
+###  唯一咨询QQ 2587480752  微信 bsdzhp
