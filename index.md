@@ -4,11 +4,10 @@
 #### 方法   1点击名称 2输入密码 3保存到网盘 4下载到本地
 [附：免费领取百度网盘体验会员](http://note.youdao.com/s/M3U4cqPJ)
 
-#### 福利一
+#### 福利
 转发图片到任意三个 百人以上微信群或QQ群均可  免费获得一个资源密码  转发后添加微信bsdzhp 发送截图并索要密码 仅限一次免费机会 
-#### 福利二 
-购买任意资源教程赠送 全网音乐软件安卓pc版  免费小说阅读
-#### 唯一咨询  QQ 2587480752 微信 bsdzhp
+
+#### 唯一咨询  QQ 2587480752
 
 #### 游戏
 
@@ -55,4 +54,4 @@
 [全网音乐安卓版可免费搜索收藏下载](https://pan.baidu.com/s/1wnaJAsEOmtWA7lyi7S3u_g)查看[密码](http://www.goukala.com/product/76D2A0E3E46EB8BD)  
 [音乐软件电脑版可免费搜索收藏下载](https://pan.baidu.com/s/1-wxmfwfVmVyvE9W_KAPpEQ)查看[密码](http://www.goukala.com/product/87014A41F9780D31)  
  
-###  唯一咨询QQ 2587480752  微信 bsdzhp
+###  唯一咨询QQ 2587480752
