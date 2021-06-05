@@ -1,7 +1,7 @@
 ### 网络干货
 #### 本叔杂货铺致力于整理热门网络干货并提供资源和专业系统的学习教程 让您享受物超所值的在线体验
 #### 工具  百度网盘  方法 1点击名称 2输入密码 3保存到网盘 4下载到本地
-#### 福利  转发[图片](https://note.youdao.com/s/TDuN1L5i)到任意三个 百人以上微信群或QQ群均可免费获得一个资源密码 转发后添加微信bsdzhp 发送截图并索要密码 仅限一次免费机会 
+#### 福利  转发[图片](https://pcsdata.baidu.com/thumbnail/3d4468d09rc3133abe02efe266f29474?fid=641054381-16051585-1043192873689968&rt=pr&sign=FDTAER-yUdy3dSFZ0SVxtzShv1zcMqd-C96kJ%2F6r3KeGhTexXIZJUUcOKtE%3D&expires=2h&chkv=0&chkbd=0&chkpc=&dp-logid=1187418120&dp-callid=0&time=1622905200&size=c1600_u1600&quality=100&vuk=-&ft=video)到任意三个 百人以上微信群或QQ群均可免费获得一个资源密码 转发后添加微信bsdzhp 发送截图并索要密码 仅限一次免费机会 
 #### 唯一咨询  QQ 2587480752
 
 #### 游戏
