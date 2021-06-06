@@ -38,7 +38,7 @@
 [标准普通话训练视频及科学发音矫正](https://pan.baidu.com/s/1oGVeNouxGBUrIzGcbenjvw)查看[密码](http://www.goukala.cn/product/6EDD39CCDD69B4DD)  
 [手机摄影参数光线场景后期全系教学](https://pan.baidu.com/s/1v6jysDLcNaJYSizNCMMCeg)查看[密码](http://www.goukala.com/product/D80E372FCBF680CE)  
 [单反摄影零基础入门到精通高级课程](https://pan.baidu.com/s/108DNlbcltkQPL3HiH2JVfQ)查看[密码](http://www.goukala.com/product/861A187566A02C9A)  
-[伪音教程男伪女伪百变声优配音教程](https://pan.baidu.com/s/1k0AMST8HuaTLT4jx23lsaw)查看[密码](http://www.goukala.cn/product/9394DA06B9A59F37)     
+[伪音教程男伪女伪百变声优配音教程](https://pan.baidu.com/s/1-Swv3kJY057TxwGyjLYh3g)查看[密码](http://www.goukala.cn/product/9394DA06B9A59F37)     
 [WPS系WORDEXCELPPT三合一教程](https://pan.baidu.com/s/1TGrhr2MrAIqvlwa0athtLw)查看[密码](http://www.goukala.cn/product/00380AD6581274CB)  
 [营销策划各类活动庆典公关推广案例](https://pan.baidu.com/s/1lOBzIxz_-ei9k63k_ly7fw)查看[密码](http://www.goukala.cn/product/00380AD6581274CB)  
 
