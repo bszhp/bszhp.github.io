@@ -14,9 +14,9 @@
 
 #### 素材
 
-[表情包微信必备聊天搞笑静态动态图](https://pan.baidu.com/s/1tdUoohPffj24c8X5FO6X1w)查看[密码](http://www.goukala.cn/product/00380AD6581274CB)  
-[音效包热门搞笑沙雕及各类拟声音效](https://pan.baidu.com/s/1KvHCUM13s6WKUtEbeM_iIg)查看[密码](http://www.goukala.cn/product/001E0136EF9D46CC)  
-[剧本文案土味情话鸡汤小品话剧剧本](https://pan.baidu.com/s/1imdmJP3wtAalJnQpYh-pyQ)查看[密码](http://www.goukala.com/product/25DC07F6A2A65EE3)  
+[表情包微信必备聊天搞笑静态动态图](https://pan.baidu.com/s/16K-bhmNjFuOHifuCQvF6nw)查看[密码](http://www.goukala.cn/product/00380AD6581274CB)  
+[音效包热门搞笑沙雕及各类拟声音效](https://pan.baidu.com/s/1Dr_PEjG6nfsLE2eQ6WO_7w)查看[密码](http://www.goukala.cn/product/001E0136EF9D46CC)  
+[剧本文案土味情话鸡汤小品话剧剧本](https://pan.baidu.com/s/13AE70iGTZFxokI9OwPaM6Q)查看[密码](http://www.goukala.com/product/25DC07F6A2A65EE3)  
 [抖音快手头条系列热门运营策划课程](https://pan.baidu.com/s/1pxSNYtIt8uwP1gErGgHFXQ)查看[密码](http://www.goukala.com/product/76D2A0E3E46EB8BD)  
 [素材包这个我还没有编号等我编好先](https://pan.baidu.com/s/1Ky9jQ6O89QcQivywl8wSlg)查看[密码](http://www.goukala.com/product/87014A41F9780D31)  
 
