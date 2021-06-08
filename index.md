@@ -52,5 +52,20 @@
 [谷歌地球电脑专业版3D高清卫星街景](https://pan.baidu.com/s/1015EuEqkUuv_YKBCRBEKzA)查看[密码](http://www.goukala.com/product/25DC07F6A2A65EE3)  
 [全网音乐安卓版可免费搜索收藏下载](https://pan.baidu.com/s/1wnaJAsEOmtWA7lyi7S3u_g)查看[密码](http://www.goukala.com/product/76D2A0E3E46EB8BD)  
 [音乐软件电脑版可免费搜索收藏下载](https://pan.baidu.com/s/1-wxmfwfVmVyvE9W_KAPpEQ)查看[密码](http://www.goukala.com/product/87014A41F9780D31)     
+
+#### 考试
+
+[2021二级建造师](https://pan.baidu.com/s/1xtsFOgIJ6MXnSU6RuYA_2w)查看[密码](http://www.goukala.net/product/2256DB37C4F90995)
+[2021一级建造师](https://pan.baidu.com/s/1TG8JYHCrcJ8dmJUAD_b75g)查看[密码](http://www.goukala.cn/product/E423AE7CE1EA826F)
+[2021一级造价师](https://pan.baidu.com/s/1y2N4L5O2erkKV_oVKvmeyg)查看[密码](http://www.goukala.net/product/CDF5D0DC956DA690)
+[2021消防工程师](https://pan.baidu.com/s/1JDOlgQ5tmmPlUs704lRUFw)查看[密码](http://www.goukala.cn/product/E5A36D3702F35361)
+[2021监理工程师](https://pan.baidu.com/s/18KpXgfvOuzSzR2PX8vDOgQ)查看[密码](http://www.goukala.net/product/91674576A547347E)
+[2021考研政治](https://pan.baidu.com/s/1HbS6dLBnVAJgfevwFAuZsQ)查看[密码](http://www.goukala.com/product/2DAA4E0C6684B0F5)
+[2021考研英语](https://pan.baidu.com/s/1ad6MYS8vCc7rvH28HIcHpg)查看[密码](http://www.goukala.com/product/7C1651A395E34605)
+[2021考研数学](https://pan.baidu.com/s/1CdopwSEsW6pSHCwhOBbkzA)查看[密码](http://www.goukala.com/product/75B758807385A3D5)
+[2021英语四级](https://pan.baidu.com/s/1cqvKKhwYI8UzrYjqqMejlQ)查看[密码](http://www.goukala.com/product/756F982B3B2B1935)
+[2021英语六级](https://pan.baidu.com/s/1hOcU2GYyYq1HZgBG_OYfmw)查看[密码](http://www.goukala.com/product/FC4B8333AC5F6D04)
+
+
  
 ###  唯一咨询QQ 2587480752
