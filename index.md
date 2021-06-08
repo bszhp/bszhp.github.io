@@ -43,14 +43,12 @@
 [WPS系WORDEXCELPPT三合一教程](https://pan.baidu.com/s/1TGrhr2MrAIqvlwa0athtLw)查看[密码](http://u0k.cn/vh2rez)  
 [营销策划各类活动庆典公关推广案例](https://pan.baidu.com/s/1lOBzIxz_-ei9k63k_ly7fw)查看[密码](http://u0k.cn/pyp35z)  
 
-
-
 #### 软件 
 
-[谷歌地球安卓户外活动野营钓鱼必备]（https://pan.baidu.com/s/16ZpHZMaPhJwU1LU5y92pzg）[密码](http://u0k.cn/fojubg)  
-[谷歌地球电脑专业版3D高清卫星街景]（https://pan.baidu.com/s/1015EuEqkUuv_YKBCRBEKzA）[密码](http://u0k.cn/k0syas)    
-[全网音乐安卓版可免费搜索收藏下载]（https://pan.baidu.com/s/1wnaJAsEOmtWA7lyi7S3u_g）[密码](http://u0k.cn/uxs1qu)    
-[音乐软件电脑版可免费搜索收藏下载]（https://pan.baidu.com/s/1-wxmfwfVmVyvE9W_KAPpEQ）[密码](http://u0k.cn/gzaapk)   
+[谷歌地球安卓户外活动野营钓鱼必备](https://pan.baidu.com/s/16ZpHZMaPhJwU1LU5y92pzg)查看[密码](http://u0k.cn/fojubg)    
+[谷歌地球电脑专业版3D高清卫星街景](https://pan.baidu.com/s/1015EuEqkUuv_YKBCRBEKzA)查看[密码](http://u0k.cn/k0syas)     
+[全网音乐安卓版可免费搜索收藏下载](https://pan.baidu.com/s/1wnaJAsEOmtWA7lyi7S3u_g)查看[密码](http://u0k.cn/uxs1qu)    
+[音乐软件电脑版可免费搜索收藏下载](https://pan.baidu.com/s/1-wxmfwfVmVyvE9W_KAPpEQ)查看[密码](http://u0k.cn/gzaapk)   
 
 #### 考试
 
