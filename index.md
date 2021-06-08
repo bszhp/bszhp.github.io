@@ -2,12 +2,9 @@
 #### 本叔杂货铺致力于整理热门网络干货并提供资源和专业系统的学习教程 让您享受物超所值的在线体验
 #### 工具  百度网盘  方法 1点击名称 2输入密码 3保存到网盘 4下载到本地
 #### 福利  转发[图片](https://picabstract-preview-ftn.weiyun.com/ftn_pic_abs_v3/8be663dbcaac82bcc94f288d500f46568bd83797d03aabe0054a6c0aef608d958bd157910dc400b0ff3d386ef6398b1b?pictype=scale&from=30113&version=3.3.3.3&uin=541062960&fname=%E5%BF%85%E7%9C%8B.jpg&size=750)到任意三个 百人以上微信群或QQ群均可免费获得一个资源密码 转发后添加微信bsdzhp 发送截图并索要密码 仅限一次免费机会 
-#### 唯一咨询  QQ 2587480752   [图片](https://share.weiyun.com/m5J3vJNh) [QQ相册](http://m.qpic.cn/psc?/V51LIauo4ZQXql03qh8w0c3ONE1oLIwc/45NBuzDIW489QBoVep5mcd1lUlGRic.Rd54wjQHncRZ5yfamnFG2NLPlKC9yJgiJi50etKHzDY1kdP8TcGXhejKACNl7QCg19ST94GdIrbE!/b&bo=JgQABgAAAAABJyQ!&rf=viewer_4)[公众号测试](https://mmbiz.qpic.cn/mmbiz_png/bg205oRFgibW6KOzobTQ1ZM74OnVzBNe1jHzicCMFzfNqac531xXdL7EqwkwqsPlxeXb2G6fibndBdqH4e2XzxrXA/0?wx_fmt=png)
-
+#### 唯一咨询  QQ 2587480752  
 [微云测试](https://picabstract-preview-ftn.weiyun.com/ftn_pic_abs_v3/63a30d862b6b0c2f9ce67a2893fc3d8f408d232f21d8570271da3029a795817bbf92e8c1a46578be46a10ea94db7137d?pictype=scale&from=30113&version=3.3.3.3&uin=541062960&fname=IMG_2001.JPG&size=750)
-[有道测试](https://note.youdao.com/yws/public/resource/5f2e18a427d7251d950d4d02897be7e7/xmlnote/WEBRESOURCE8b2d577d914e648570c687f82a0e0f9f/312)
 
- 
 #### 游戏
 
 [街机电脑版拳皇三国合金经典250+合集](https://pan.baidu.com/s/1tIgx0JZzvXaiSkMta2yshA)查看[密码](http://www.goukala.cn/product/6EDD39CCDD69B4DD)  
@@ -55,16 +52,17 @@
 
 #### 考试
 
-[2021二级建造师](https://pan.baidu.com/s/1rLPkKkCbs2Xv794GcVDfsg)查看[密码](http://www.goukala.net/product/2256DB37C4F90995)  
-[2021一级建造师](https://pan.baidu.com/s/1TG8JYHCrcJ8dmJUAD_b75g)查看[密码](http://www.goukala.cn/product/E423AE7CE1EA826F)  
-[2021一级造价师](https://pan.baidu.com/s/1YxQ_Vi-KxSguCwcjDTpb0g)查看[密码](http://www.goukala.net/product/CDF5D0DC956DA690)  
-[2021消防工程师](https://pan.baidu.com/s/1JDOlgQ5tmmPlUs704lRUFw)查看[密码](http://www.goukala.cn/product/E5A36D3702F35361)  
-[2021监理工程师](https://pan.baidu.com/s/18KpXgfvOuzSzR2PX8vDOgQ)查看[密码](http://www.goukala.net/product/91674576A547347E)  
-[2021考研政治](https://pan.baidu.com/s/1HbS6dLBnVAJgfevwFAuZsQ)查看[密码](http://www.goukala.com/product/2DAA4E0C6684B0F5)  
-[2021考研英语](https://pan.baidu.com/s/1ad6MYS8vCc7rvH28HIcHpg)查看[密码](http://www.goukala.com/product/7C1651A395E34605)  
-[2021考研数学](https://pan.baidu.com/s/1CdopwSEsW6pSHCwhOBbkzA)查看[密码](http://www.goukala.com/product/75B758807385A3D5)  
-[2021英语四级](https://pan.baidu.com/s/1cqvKKhwYI8UzrYjqqMejlQ)查看[密码](http://www.goukala.com/product/756F982B3B2B1935)  
-[2021英语六级](https://pan.baidu.com/s/1hOcU2GYyYq1HZgBG_OYfmw)查看[密码](http://www.goukala.com/product/FC4B8333AC5F6D04)  
+[2021二建视频讲义课件](https://pan.baidu.com/s/1rLPkKkCbs2Xv794GcVDfsg)查看[密码](http://www.goukala.net/product/2256DB37C4F90995)  
+[2021一建视频讲义课件](https://pan.baidu.com/s/1TG8JYHCrcJ8dmJUAD_b75g)查看[密码](http://www.goukala.cn/product/E423AE7CE1EA826F)  
+[2021一造视频讲义课件](https://pan.baidu.com/s/1YxQ_Vi-KxSguCwcjDTpb0g)查看[密码](http://www.goukala.net/product/CDF5D0DC956DA690)  
+[2021消防视频讲义课件](https://pan.baidu.com/s/1JDOlgQ5tmmPlUs704lRUFw)查看[密码](http://www.goukala.cn/product/E5A36D3702F35361)  
+[2021监理视频讲义课件](https://pan.baidu.com/s/18KpXgfvOuzSzR2PX8vDOgQ)查看[密码](http://www.goukala.net/product/91674576A547347E)  
+[2021英语四级视频讲义课件](https://pan.baidu.com/s/1cqvKKhwYI8UzrYjqqMejlQ)查看[密码](http://www.goukala.com/product/756F982B3B2B1935)  
+[2021英语六级视频讲义课件](https://pan.baidu.com/s/1hOcU2GYyYq1HZgBG_OYfmw)查看[密码](http://www.goukala.com/product/FC4B8333AC5F6D04)  
+[2021考研政治视频讲义课件](https://pan.baidu.com/s/1HbS6dLBnVAJgfevwFAuZsQ)查看[密码](http://www.goukala.com/product/2DAA4E0C6684B0F5)  
+[2021考研英语视频讲义课件](https://pan.baidu.com/s/1ad6MYS8vCc7rvH28HIcHpg)查看[密码](http://www.goukala.com/product/7C1651A395E34605)  
+[2021考研数学视频讲义课件](https://pan.baidu.com/s/1CdopwSEsW6pSHCwhOBbkzA)查看[密码](http://www.goukala.com/product/75B758807385A3D5)  
+
 
 
  
