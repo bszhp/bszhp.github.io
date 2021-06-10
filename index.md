@@ -57,8 +57,8 @@
 [2021英语六级视频讲义课件](https://pan.baidu.com/s/1hOcU2GYyYq1HZgBG_OYfmw)查看[密码](http://u0k.cn/4w4ecv)  
 
 #### 少儿
-
-[少儿早教启蒙课程全系列](https://pan.baidu.com/s/1hwey1Jws9vaYiWBGpJPvBw)查看[密码](http://u0k.cn/3xjqe1)  
+[预览](https://picabstract-preview-ftn.weiyun.com/ftn_pic_abs_v3/ac37abc4817d44fd99903a969a76a25c84087e477778ab69299daba22153f459b12f0482c39e3a172a70c3f0ddc8280d?pictype=scale&from=30113&version=3.3.3.3&uin=541062960&fname=%E6%97%A9%E6%95%99.jpg&size=750)  
+[少儿早教启蒙课程全系列](https://pan.baidu.com/s/1hwey1Jws9vaYiWBGpJPvBw)查看[预览](https://picabstract-preview-ftn.weiyun.com/ftn_pic_abs_v3/ac37abc4817d44fd99903a969a76a25c84087e477778ab69299daba22153f459b12f0482c39e3a172a70c3f0ddc8280d?pictype=scale&from=30113&version=3.3.3.3&uin=541062960&fname=%E6%97%A9%E6%95%99.jpg&size=750)或[密码](http://u0k.cn/3xjqe1)  
 [少儿编程趣味入门级编程](https://pan.baidu.com/s/14Pgc-6hA0kSTPNOBGYztMA)查看[密码](http://u0k.cn/howpxk)  
 [少儿成语故事大全及动画](https://pan.baidu.com/s/1UDFHEO4AtE_q7AnPhaz9oQ)查看[密码](http://u0k.cn/g05sfi)  
 [少儿口才小主持训练教程](https://pan.baidu.com/s/14ICDBq9Nf9cVkZEPZVBLAg)查看[密码](http://u0k.cn/ogt1hg)  
