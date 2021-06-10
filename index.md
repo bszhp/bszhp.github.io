@@ -3,7 +3,6 @@
 #### 工具  百度网盘  方法 1点击名称 2输入密码 3保存到网盘 4下载到本地
 #### 福利  转发[图片](https://picabstract-preview-ftn.weiyun.com/ftn_pic_abs_v3/8be663dbcaac82bcc94f288d500f46568bd83797d03aabe0054a6c0aef608d958bd157910dc400b0ff3d386ef6398b1b?pictype=scale&from=30113&version=3.3.3.3&uin=541062960&fname=%E5%BF%85%E7%9C%8B.jpg&size=750)到任意三个 百人以上微信群或QQ群均可免费获得一个资源密码 转发后添加微信bsdzhp 发送截图并索要密码 仅限一次免费机会 
 #### 唯一咨询  QQ 2587480752  
-[微云测试](https://picabstract-preview-ftn.weiyun.com/ftn_pic_abs_v3/63a30d862b6b0c2f9ce67a2893fc3d8f408d232f21d8570271da3029a795817bbf92e8c1a46578be46a10ea94db7137d?pictype=scale&from=30113&version=3.3.3.3&uin=541062960&fname=IMG_2001.JPG&size=750)
 
 #### 游戏
 
@@ -43,12 +42,6 @@
 [WPS系WORDEXCELPPT三合一教程](https://pan.baidu.com/s/1TGrhr2MrAIqvlwa0athtLw)查看[密码](http://u0k.cn/vh2rez)  
 [营销策划各类活动庆典公关推广案例](https://pan.baidu.com/s/1lOBzIxz_-ei9k63k_ly7fw)查看[密码](http://u0k.cn/pyp35z)  
 
-#### 软件 
-
-[谷歌地球安卓户外活动野营钓鱼必备](https://pan.baidu.com/s/16ZpHZMaPhJwU1LU5y92pzg)查看[密码](http://u0k.cn/fojubg)    
-[谷歌地球电脑专业版3D高清卫星街景](https://pan.baidu.com/s/1015EuEqkUuv_YKBCRBEKzA)查看[密码](http://u0k.cn/k0syas)     
-[全网音乐安卓版可免费搜索收藏下载](https://pan.baidu.com/s/1wnaJAsEOmtWA7lyi7S3u_g)查看[密码](http://u0k.cn/uxs1qu)    
-[音乐软件电脑版可免费搜索收藏下载](https://pan.baidu.com/s/1-wxmfwfVmVyvE9W_KAPpEQ)查看[密码](http://u0k.cn/gzaapk)   
 
 #### 考试
 
@@ -65,13 +58,19 @@
 
 #### 少儿
 
-[少儿早教](https://pan.baidu.com/s/1hwey1Jws9vaYiWBGpJPvBw)查看[密码](http://u0k.cn/3xjqe1)  
-[少儿编程](https://pan.baidu.com/s/14Pgc-6hA0kSTPNOBGYztMA)查看[密码](http://u0k.cn/howpxk)  
-[少儿成语](https://pan.baidu.com/s/1UDFHEO4AtE_q7AnPhaz9oQ)查看[密码](http://u0k.cn/g05sfi)  
-[少儿口才](https://pan.baidu.com/s/14ICDBq9Nf9cVkZEPZVBLAg)查看[密码](http://u0k.cn/ogt1hg)  
-[少儿舞蹈](https://pan.baidu.com/s/1dyuZLsYVorJZsXn8t49Tsw)查看[密码](http://u0k.cn/gg3zxv)  
-[少儿书法](https://pan.baidu.com/s/1P1W-uqkdisrk2umTf-MlOg)查看[密码](http://u0k.cn/k40ldb)  
-[少儿英语](https://pan.baidu.com/s/19jKavUVokdFjk5PQG6DwMQ)查看[密码](http://u0k.cn/wim50d)  
+[少儿早教启蒙课程全系列](https://pan.baidu.com/s/1hwey1Jws9vaYiWBGpJPvBw)查看[密码](http://u0k.cn/3xjqe1)  
+[少儿编程趣味入门级编程](https://pan.baidu.com/s/14Pgc-6hA0kSTPNOBGYztMA)查看[密码](http://u0k.cn/howpxk)  
+[少儿成语故事大全及动画](https://pan.baidu.com/s/1UDFHEO4AtE_q7AnPhaz9oQ)查看[密码](http://u0k.cn/g05sfi)  
+[少儿口才小主持训练教程](https://pan.baidu.com/s/14ICDBq9Nf9cVkZEPZVBLAg)查看[密码](http://u0k.cn/ogt1hg)  
+[少儿舞蹈基本功技巧教学](https://pan.baidu.com/s/1dyuZLsYVorJZsXn8t49Tsw)查看[密码](http://u0k.cn/gg3zxv)  
+[少儿书法零基础自学课件](https://pan.baidu.com/s/1P1W-uqkdisrk2umTf-MlOg)查看[密码](http://u0k.cn/k40ldb)  
+[少儿英语单词口语音标课](https://pan.baidu.com/s/19jKavUVokdFjk5PQG6DwMQ)查看[密码](http://u0k.cn/wim50d)  
 
- 
+#### 软件 
+
+[谷歌地球安卓户外活动野营钓鱼必备](https://pan.baidu.com/s/16ZpHZMaPhJwU1LU5y92pzg)查看[密码](http://u0k.cn/fojubg)    
+[谷歌地球电脑专业版3D高清卫星街景](https://pan.baidu.com/s/1015EuEqkUuv_YKBCRBEKzA)查看[密码](http://u0k.cn/k0syas)     
+[全网音乐安卓版可免费搜索收藏下载](https://pan.baidu.com/s/1wnaJAsEOmtWA7lyi7S3u_g)查看[密码](http://u0k.cn/uxs1qu)    
+[音乐软件电脑版可免费搜索收藏下载](https://pan.baidu.com/s/1-wxmfwfVmVyvE9W_KAPpEQ)查看[密码](http://u0k.cn/gzaapk)   
+
 ###  唯一咨询QQ 2587480752
