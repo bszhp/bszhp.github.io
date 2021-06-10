@@ -6,41 +6,41 @@
 
 #### 游戏
 
-[街机电脑版拳皇三国合金经典250+合集](https://pan.baidu.com/s/1tIgx0JZzvXaiSkMta2yshA)查看[密码](http://u0k.cn/f2uumu)  
-[街机安卓拳版皇三国合金经典500+合集](https://pan.baidu.com/s/132tQIMkwgxzBqdGL2llhMQ)查看[密码](http://u0k.cn/ejordc)  
-[小霸王电脑版魂斗罗冒险岛等700+合集](https://pan.baidu.com/s/15sJ8YbelQD4uRrqogv6Yeg)查看[密码](http://u0k.cn/3zayq4)  
+[街机电脑拳皇三国合金经典250+合集](https://pan.baidu.com/s/1tIgx0JZzvXaiSkMta2yshA)查看[密码](http://u0k.cn/f2uumu)  
+[街机安卓拳皇三国合金经典500+合集](https://pan.baidu.com/s/132tQIMkwgxzBqdGL2llhMQ)查看[密码](http://u0k.cn/ejordc)  
+[小霸王电脑魂斗罗冒险岛等700+合集](https://pan.baidu.com/s/15sJ8YbelQD4uRrqogv6Yeg)查看[密码](http://u0k.cn/3zayq4)  
 [王者荣耀上分技巧套路教学全套视频](https://pan.baidu.com/s/1QkSdNcXS2cyeILHJt_Xm8w)查看[密码](http://u0k.cn/lfezz3)  
 [英雄联盟意识技巧心态教学视频合集](https://pan.baidu.com/s/14yqV5uFWbKr9kp6OAaGMiw)查看[密码](http://u0k.cn/vh2rez)  
 
 #### 素材
 
-[表情包微信必备聊天搞笑静态动态图](https://pan.baidu.com/s/16K-bhmNjFuOHifuCQvF6nw)查看[密码](http://u0k.cn/pyp35z)  
-[音效包热门搞笑沙雕及各类拟声音效](https://pan.baidu.com/s/1Dr_PEjG6nfsLE2eQ6WO_7w)查看[密码](http://u0k.cn/fojubg)  
-[剧本文案土味情话鸡汤小品话剧剧本](https://pan.baidu.com/s/13AE70iGTZFxokI9OwPaM6Q)查看[密码](http://u0k.cn/k0syas)  
-[抖音快手头条系列热门运营策划课程](https://pan.baidu.com/s/1pxSNYtIt8uwP1gErGgHFXQ)查看[密码](http://u0k.cn/uxs1qu)  
-[素材包这个我还没有编号等我编好先](https://pan.baidu.com/s/1Ky9jQ6O89QcQivywl8wSlg)查看[密码](http://u0k.cn/gzaapk)  
+[表情包微信聊天搞笑静态动态图](https://pan.baidu.com/s/16K-bhmNjFuOHifuCQvF6nw)查看[密码](http://u0k.cn/pyp35z)  
+[音效包热门沙雕及各类拟声音效](https://pan.baidu.com/s/1Dr_PEjG6nfsLE2eQ6WO_7w)查看[密码](http://u0k.cn/fojubg)  
+[剧本文案土味情话小品话剧剧本](https://pan.baidu.com/s/13AE70iGTZFxokI9OwPaM6Q)查看[密码](http://u0k.cn/k0syas)  
+[抖音快手头条热门运营策划课程](https://pan.baidu.com/s/1pxSNYtIt8uwP1gErGgHFXQ)查看[密码](http://u0k.cn/uxs1qu)  
+[素材包这个我还没有编号编好先](https://pan.baidu.com/s/1Ky9jQ6O89QcQivywl8wSlg)查看[密码](http://u0k.cn/gzaapk)  
 
 #### 生活
 
-[女生形象穿衣打扮服装搭配视频教程](https://pan.baidu.com/s/15RV7gJoIYK8rk9ToTDaROQ) 查看[密码](http://u0k.cn/3xjqe1)   
-[男士服装穿衣搭配技巧形象课程教学](https://pan.baidu.com/s/1bBc-oi6x5clwBC9vXakOkw) 查看[密码](http://u0k.cn/howpxk)  
-[瑜伽教程瑜伽自学初级中级高级教程](https://pan.baidu.com/s/1XHZOYH7VyfNS6t7iCloXDg) 查看[密码](http://u0k.cn/g05sfi)  
-[八大菜系川鲁粤苏浙闽湘徽全系教学](https://pan.baidu.com/s/1TZec3w7oeEyh6XKV7Wm1KA) 查看[密码](http://u0k.cn/ogt1hg)  
-[酒文化敬酒礼仪话术祝酒词幽默技巧](https://pan.baidu.com/s/1quF0UMfcvgK4T8QJEvW7pA) 查看[密码](http://u0k.cn/gg3zxv)  
-[宠物训练金毛泰迪行为纠正训练教程](https://pan.baidu.com/s/1Y6-IFrdQLCdmvuPjPoAX_A) 查看[密码](http://u0k.cn/k40ldb)  
+[女生形象穿衣打扮服装搭配教程](https://pan.baidu.com/s/15RV7gJoIYK8rk9ToTDaROQ) 查看[密码](http://u0k.cn/3xjqe1)   
+[男士服装穿衣搭配技巧形象教学](https://pan.baidu.com/s/1bBc-oi6x5clwBC9vXakOkw) 查看[密码](http://u0k.cn/howpxk)  
+[瑜伽教程瑜伽初级中级高级教程](https://pan.baidu.com/s/1XHZOYH7VyfNS6t7iCloXDg) 查看[密码](http://u0k.cn/g05sfi)  
+[八大菜系川鲁粤苏浙闽湘徽教学](https://pan.baidu.com/s/1TZec3w7oeEyh6XKV7Wm1KA) 查看[密码](http://u0k.cn/ogt1hg)  
+[酒文化敬酒礼仪话术祝酒词技巧](https://pan.baidu.com/s/1quF0UMfcvgK4T8QJEvW7pA) 查看[密码](http://u0k.cn/gg3zxv)  
+[宠物训练狗狗行为纠正训练教程](https://pan.baidu.com/s/1Y6-IFrdQLCdmvuPjPoAX_A) 查看[密码](http://u0k.cn/k40ldb)  
 
 #### 技巧
 
-[播音主持语言表达口腔控制发声教程](https://pan.baidu.com/s/1EsAtURhFO3Tx8BwUA-bjJw)查看[密码](http://u0k.cn/wim50d)  
-[唱歌教程唱歌技巧速成教学 KTV必备](https://pan.baidu.com/s/1j35b6inuCl4wyYcZeD9fvg)查看[密码](http://u0k.cn/abpl3z)  
-[化妆教程美妆教学职场画眉修眉课程](https://pan.baidu.com/s/1La8LNd-_-g9yxRak4w9Qlg)查看[密码](http://u0k.cn/qlmdsl)  
-[聊天技巧人际交往高效话题话术课程](https://pan.baidu.com/s/1edPHViF_81GLEcrE0ebJow)查看[密码](http://u0k.cn/bz1gg4)   
-[标准普通话训练视频及科学发音矫正](https://pan.baidu.com/s/1oGVeNouxGBUrIzGcbenjvw)查看[密码](http://u0k.cn/f2uumu)  
-[手机摄影参数光线场景后期全系教学](https://pan.baidu.com/s/1v6jysDLcNaJYSizNCMMCeg)查看[密码](http://u0k.cn/ejordc)  
-[单反摄影零基础入门到精通高级课程](https://pan.baidu.com/s/108DNlbcltkQPL3HiH2JVfQ)查看[密码](http://u0k.cn/3zayq4)  
-[伪音教程男伪女伪百变声优配音教程](https://pan.baidu.com/s/1-Swv3kJY057TxwGyjLYh3g)查看[密码](http://u0k.cn/lfezz3)     
+[主播主持语言表达控制发声教程](https://pan.baidu.com/s/1EsAtURhFO3Tx8BwUA-bjJw)查看[密码](http://u0k.cn/wim50d)  
+[唱歌教程唱歌技巧节奏旋律速成](https://pan.baidu.com/s/1j35b6inuCl4wyYcZeD9fvg)查看[密码](http://u0k.cn/abpl3z)  
+[化妆教程美妆教学职场画眉课程](https://pan.baidu.com/s/1La8LNd-_-g9yxRak4w9Qlg)查看[密码](http://u0k.cn/qlmdsl)  
+[聊天技巧人际交往高效话术课程](https://pan.baidu.com/s/1edPHViF_81GLEcrE0ebJow)查看[密码](http://u0k.cn/bz1gg4)   
+[标准普通话训练视频及发音矫正](https://pan.baidu.com/s/1oGVeNouxGBUrIzGcbenjvw)查看[密码](http://u0k.cn/f2uumu)  
+[手机摄影参数光线场景后期教学](https://pan.baidu.com/s/1v6jysDLcNaJYSizNCMMCeg)查看[密码](http://u0k.cn/ejordc)  
+[单反摄影零基础入门到精通课程](https://pan.baidu.com/s/108DNlbcltkQPL3HiH2JVfQ)查看[密码](http://u0k.cn/3zayq4)  
+[伪音教程男伪女伪声优配音教程](https://pan.baidu.com/s/1-Swv3kJY057TxwGyjLYh3g)查看[密码](http://u0k.cn/lfezz3)     
 [WPS系WORDEXCELPPT三合一教程](https://pan.baidu.com/s/1TGrhr2MrAIqvlwa0athtLw)查看[密码](http://u0k.cn/vh2rez)  
-[营销策划各类活动庆典公关推广案例](https://pan.baidu.com/s/1lOBzIxz_-ei9k63k_ly7fw)查看[密码](http://u0k.cn/pyp35z)  
+[营销策划各类活动公关推广案例](https://pan.baidu.com/s/1lOBzIxz_-ei9k63k_ly7fw)查看[密码](http://u0k.cn/pyp35z)  
 
 
 #### 考试
