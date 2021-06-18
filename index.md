@@ -2,7 +2,7 @@
 #### 本叔杂货铺致力于整理热门网络干货并提供资源和专业系统的学习教程 让您享受物超所值的在线体验
 #### 工具  百度网盘  方法 1点击名称 2输入密码 3保存到网盘 4下载到本地
 #### 福利  转发[图片](https://picabstract-preview-ftn.weiyun.com/ftn_pic_abs_v3/8be663dbcaac82bcc94f288d500f46568bd83797d03aabe0054a6c0aef608d958bd157910dc400b0ff3d386ef6398b1b?pictype=scale&from=30113&version=3.3.3.3&uin=541062960&fname=%E5%BF%85%E7%9C%8B.jpg&size=750)到任意三个 百人以上微信群或QQ群均可免费获得一个资源密码 转发后添加微信bsdzhp 发送截图并索要密码 仅限一次免费机会 
-#### 唯一咨询  QQ 2587480752  
+#### 唯一咨询  微信 bsdzhp
 
 #### 游戏
 
@@ -57,7 +57,7 @@
 [2021英语六级视频讲义课件](https://pan.baidu.com/s/1hOcU2GYyYq1HZgBG_OYfmw)查看[密码](http://u0k.cn/4w4ecv)  
 
 #### 少儿
-[预览](https://picabstract-preview-ftn.weiyun.com/ftn_pic_abs_v3/ac37abc4817d44fd99903a969a76a25c84087e477778ab69299daba22153f459b12f0482c39e3a172a70c3f0ddc8280d?pictype=scale&from=30113&version=3.3.3.3&uin=541062960&fname=%E6%97%A9%E6%95%99.jpg&size=750)  
+
 [少儿早教启蒙课程全系列](https://pan.baidu.com/s/1hwey1Jws9vaYiWBGpJPvBw)查看[预览](https://picabstract-preview-ftn.weiyun.com/ftn_pic_abs_v3/ac37abc4817d44fd99903a969a76a25c84087e477778ab69299daba22153f459b12f0482c39e3a172a70c3f0ddc8280d?pictype=scale&from=30113&version=3.3.3.3&uin=541062960&fname=%E6%97%A9%E6%95%99.jpg&size=750)或[密码](http://u0k.cn/3xjqe1)  
 [少儿编程趣味入门级编程](https://pan.baidu.com/s/14Pgc-6hA0kSTPNOBGYztMA)查看[密码](http://u0k.cn/howpxk)  
 [少儿成语故事大全及动画](https://pan.baidu.com/s/1UDFHEO4AtE_q7AnPhaz9oQ)查看[密码](http://u0k.cn/g05sfi)  
@@ -73,4 +73,4 @@
 [全网音乐安卓版可免费搜索收藏下载](https://pan.baidu.com/s/1wnaJAsEOmtWA7lyi7S3u_g)查看[密码](http://u0k.cn/uxs1qu)    
 [音乐软件电脑版可免费搜索收藏下载](https://pan.baidu.com/s/1-wxmfwfVmVyvE9W_KAPpEQ)查看[密码](http://u0k.cn/gzaapk)   
 
-###  唯一咨询QQ 2587480752
+###  唯一咨询微信 bsdzhp
