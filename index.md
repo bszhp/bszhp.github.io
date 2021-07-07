@@ -17,8 +17,7 @@
 [表情包微信聊天搞笑静态动态图](https://pan.baidu.com/s/16K-bhmNjFuOHifuCQvF6nw)查看[密码](http://u0k.cn/pyp35z)  
 [音效包热门沙雕及各类拟声音效](https://pan.baidu.com/s/1Dr_PEjG6nfsLE2eQ6WO_7w)查看[密码](http://u0k.cn/fojubg)  
 [剧本文案土味情话小品话剧剧本](https://pan.baidu.com/s/13AE70iGTZFxokI9OwPaM6Q)查看[密码](http://u0k.cn/k0syas)  
-[抖音快手头条热门运营策划课程](https://pan.baidu.com/s/1pxSNYtIt8uwP1gErGgHFXQ)查看[密码](http://u0k.cn/uxs1qu)  
-[素材包这个我还没有编号编好先](https://pan.baidu.com/s/1Ky9jQ6O89QcQivywl8wSlg)查看[密码](http://u0k.cn/gzaapk)  
+
 
 #### 生活
 
@@ -42,7 +41,6 @@
 [WPS系WORDEXCELPPT三合一教程](https://pan.baidu.com/s/1TGrhr2MrAIqvlwa0athtLw)查看[密码](http://u0k.cn/vh2rez)  
 [营销策划各类活动公关推广案例](https://pan.baidu.com/s/1lOBzIxz_-ei9k63k_ly7fw)查看[密码](http://u0k.cn/pyp35z)  
 
-
 #### 考试
 
 [2021二建视频讲义课件](https://pan.baidu.com/s/1rLPkKkCbs2Xv794GcVDfsg)查看[密码](http://u0k.cn/s0buby)  
@@ -58,7 +56,6 @@
 
 #### 少儿
 
-[少儿早教启蒙课程全系列](https://pan.baidu.com/s/1hwey1Jws9vaYiWBGpJPvBw)查看[预览](https://picabstract-preview-ftn.weiyun.com/ftn_pic_abs_v3/ac37abc4817d44fd99903a969a76a25c84087e477778ab69299daba22153f459b12f0482c39e3a172a70c3f0ddc8280d?pictype=scale&from=30113&version=3.3.3.3&uin=541062960&fname=%E6%97%A9%E6%95%99.jpg&size=750)或[密码](http://u0k.cn/3xjqe1)  
 [少儿编程趣味入门级编程](https://pan.baidu.com/s/14Pgc-6hA0kSTPNOBGYztMA)查看[密码](http://u0k.cn/howpxk)  
 [少儿成语故事大全及动画](https://pan.baidu.com/s/1UDFHEO4AtE_q7AnPhaz9oQ)查看[密码](http://u0k.cn/g05sfi)  
 [少儿口才小主持训练教程](https://pan.baidu.com/s/14ICDBq9Nf9cVkZEPZVBLAg)查看[密码](http://u0k.cn/ogt1hg)  
