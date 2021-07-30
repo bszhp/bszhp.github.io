@@ -1,8 +1,9 @@
 ### 网络干货
-#### 本叔杂货铺致力于整理热门网络干货并提供资源和专业系统的学习教程 让您享受物超所值的在线体验
+#### 本叔杂货铺致力于整理热门网络干货和专业系统的学习教程 让您享受物超所值的在线体验
 #### 工具  百度网盘  方法 1点击名称 2输入密码 3保存到网盘 4下载到本地
-#### 福利  转发[图片](https://picabstract-preview-ftn.weiyun.com/ftn_pic_abs_v3/8be663dbcaac82bcc94f288d500f46568bd83797d03aabe0054a6c0aef608d958bd157910dc400b0ff3d386ef6398b1b?pictype=scale&from=30113&version=3.3.3.3&uin=541062960&fname=%E5%BF%85%E7%9C%8B.jpg&size=750)到任意三个 百人以上微信群或QQ群均可免费获得一个资源密码 转发后添加微信bsdzhp 发送截图并索要密码 仅限一次免费机会 
+#### 福利  转发[图片](https://picabstract-preview-ftn.weiyun.com/ftn_pic_abs_v3/8be663dbcaac82bcc94f288d500f46568bd83797d03aabe0054a6c0aef608d958bd157910dc400b0ff3d386ef6398b1b?pictype=scale&from=30113&version=3.3.3.3&uin=541062960&fname=%E5%BF%85%E7%9C%8B.jpg&size=750)到任意三个 百人以上微信群可免费获得一个资源密码 转发后添加微信bsdzhp 发送截图并索要密码 活动每人仅限一次。
 #### 唯一咨询  微信 bsdzhp
+
 
 #### 游戏
 
@@ -63,11 +64,5 @@
 [少儿书法零基础自学课件](https://pan.baidu.com/s/1P1W-uqkdisrk2umTf-MlOg)查看[密码](http://u0k.cn/k40ldb)  
 [少儿英语单词口语音标课](https://pan.baidu.com/s/19jKavUVokdFjk5PQG6DwMQ)查看[密码](http://u0k.cn/wim50d)  
 
-#### 软件 
-
-[谷歌地球安卓户外活动野营钓鱼必备](https://pan.baidu.com/s/16ZpHZMaPhJwU1LU5y92pzg)查看[密码](http://u0k.cn/fojubg)    
-[谷歌地球电脑专业版3D高清卫星街景](https://pan.baidu.com/s/1015EuEqkUuv_YKBCRBEKzA)查看[密码](http://u0k.cn/k0syas)     
-[全网音乐安卓版可免费搜索收藏下载](https://pan.baidu.com/s/1wnaJAsEOmtWA7lyi7S3u_g)查看[密码](http://u0k.cn/uxs1qu)    
-[音乐软件电脑版可免费搜索收藏下载](https://pan.baidu.com/s/1-wxmfwfVmVyvE9W_KAPpEQ)查看[密码](http://u0k.cn/gzaapk)   
 
 ###  唯一咨询微信 bsdzhp
