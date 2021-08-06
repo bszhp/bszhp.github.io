@@ -1,7 +1,7 @@
 ### 网络干货
 #### 本叔杂货铺致力于整理热门网络干货和专业系统的学习教程 让您享受物超所值的在线体验
 #### 工具  百度网盘  方法 1点击名称 2输入密码 3保存到网盘 4下载到本地
-#### 福利  转发[图片](https://picabstract-preview-ftn.weiyun.com/ftn_pic_abs_v3/8be663dbcaac82bcc94f288d500f46568bd83797d03aabe0054a6c0aef608d958bd157910dc400b0ff3d386ef6398b1b?pictype=scale&from=30113&version=3.3.3.3&uin=541062960&fname=%E5%BF%85%E7%9C%8B.jpg&size=750)到任意三个 百人以上微信群可免费获得一个资源密码 转发后添加微信bsdzhp 发送截图并索要密码 活动每人仅限一次。
+#### 今日份免费领取  
 #### 唯一咨询  微信 bsdzhp
 
 
@@ -9,7 +9,7 @@
 
 [街机电脑拳皇三国合金经典250+合集](https://pan.baidu.com/s/1tIgx0JZzvXaiSkMta2yshA)查看[密码](http://u0k.cn/f2uumu)  
 [街机安卓拳皇三国合金经典500+合集](https://pan.baidu.com/s/132tQIMkwgxzBqdGL2llhMQ)查看[密码](http://u0k.cn/ejordc)  
-[小霸王电脑魂斗罗冒险岛等700+合集](https://pan.baidu.com/s/15sJ8YbelQD4uRrqogv6Yeg)查看[密码](http://u0k.cn/3zayq4)  
+[小霸王电脑魂斗罗冒险岛等700+合集](https://pan.baidu.com/s/15sJ8YbelQD4uRrqogv6Yeg)查看[密码](http://u0k.cn/3zayq4)  +
 [王者荣耀上分技巧套路教学全套视频](https://pan.baidu.com/s/1QkSdNcXS2cyeILHJt_Xm8w)查看[密码](http://u0k.cn/lfezz3)  
 [英雄联盟意识技巧心态教学视频合集](https://pan.baidu.com/s/14yqV5uFWbKr9kp6OAaGMiw)查看[密码](http://u0k.cn/vh2rez)  
 
