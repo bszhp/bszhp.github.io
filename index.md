@@ -12,23 +12,23 @@
 
 付费资源
 
-8019[街机PC版拳皇三国合金经典250+合集]（https://pan.baidu.com/s/1tIgx0JZzvXaiSkMta2yshA）  
-8028[街机安卓拳皇三国合金经典500+合集] (https://pan.baidu.com/s/132tQIMkwgxzBqdGL2llhMQ）  
-8037[小霸王PC魂斗罗冒险岛影子700+合集]（https://pan.baidu.com/s/15sJ8YbelQD4uRrqogv6Yeg）  
-8046[王者荣耀上分技巧套路教学全套视频]（https://pan.baidu.com/s/1QkSdNcXS2cyeILHJt_Xm8w）  
-8055[英雄联盟意识技巧心态教学视频合集]（https://pan.baidu.com/s/14yqV5uFWbKr9kp6OAaGMiw）  
+8019[街机PC版拳皇三国合金经典250+合集](https://pan.baidu.com/s/1tIgx0JZzvXaiSkMta2yshA)   
+8028[街机安卓拳皇三国合金经典500+合集](https://pan.baidu.com/s/132tQIMkwgxzBqdGL2llhMQ)  
+8037[小霸王PC魂斗罗冒险岛影子700+合集](https://pan.baidu.com/s/15sJ8YbelQD4uRrqogv6Yeg)  
+8046[王者荣耀上分技巧套路教学全套视频](https://pan.baidu.com/s/1QkSdNcXS2cyeILHJt_Xm8w)  
+8055[英雄联盟意识技巧心态教学视频合集](https://pan.baidu.com/s/14yqV5uFWbKr9kp6OAaGMiw)  
 
-8173[播音主持语言表达口腔控制发声教程]（https://pan.baidu.com/s/1EsAtURhFO3Tx8BwUA-bjJw）  
-8182[唱歌教程唱歌技巧速成教学 KTV必备]（https://pan.baidu.com/s/1j35b6inuCl4wyYcZeD9fvg）  
-8191[化妆教程美妆教学职场画眉修眉课程]（https://pan.baidu.com/s/1La8LNd-_-g9yxRak4w9Qlg）  
+8173[播音主持语言表达口腔控制发声教程](https://pan.baidu.com/s/1EsAtURhFO3Tx8BwUA-bjJw)  
+8182[唱歌教程唱歌技巧速成教学 KTV必备](https://pan.baidu.com/s/1j35b6inuCl4wyYcZeD9fvg)   
+8191[化妆教程美妆教学职场画眉修眉课程](https://pan.baidu.com/s/1La8LNd-_-g9yxRak4w9Qlg)  
 
-8200[聊天技巧人际交往高效话题话术课程]（https://pan.baidu.com/s/1edPHViF_81GLEcrE0ebJow）  
-8019[标准普通话训练视频及科学发音矫正]（https://pan.baidu.com/s/1oGVeNouxGBUrIzGcbenjvw）  
-8028[手机摄影参数光线场景后期全系教学]（https://pan.baidu.com/s/1v6jysDLcNaJYSizNCMMCeg）  
-8037[单反摄影零基础入门到高级精通课程]（https://pan.baidu.com/s/1PiYtOeorbG2R8zvrDa9p4g）  
-8046[伪音教程男伪女伪百变声优配音教程]（https://pan.baidu.com/s/1-Swv3kJY057TxwGyjLYh3g）  
-8055[WPS系列WORDEXCEL PPT三合一全教程]（https://pan.baidu.com/s/1TGrhr2MrAIqvlwa0athtLw）  
-8064[营销策划各类活动庆典公关推广案例]（https://pan.baidu.com/s/1lOBzIxz_-ei9k63k_ly7fw）  
+8200[聊天技巧人际交往高效话题话术课程](https://pan.baidu.com/s/1edPHViF_81GLEcrE0ebJow)   
+8019[标准普通话训练视频及科学发音矫正](https://pan.baidu.com/s/1oGVeNouxGBUrIzGcbenjvw)   
+8028[手机摄影参数光线场景后期全系教学](https://pan.baidu.com/s/1v6jysDLcNaJYSizNCMMCeg)   
+8037[单反摄影零基础入门到高级精通课程](https://pan.baidu.com/s/1PiYtOeorbG2R8zvrDa9p4g)   
+8046[伪音教程男伪女伪百变声优配音教程](https://pan.baidu.com/s/1-Swv3kJY057TxwGyjLYh3g)  
+8055[WPS系列WORDEXCEL PPT三合一全教程](https://pan.baidu.com/s/1TGrhr2MrAIqvlwa0athtLw)   
+8064[营销策划各类活动庆典公关推广案例](https://pan.baidu.com/s/1lOBzIxz_-ei9k63k_ly7fw)  
 
 8219[2021二建视频讲义课件](https://pan.baidu.com/s/1rLPkKkCbs2Xv794GcVDfsg) 群二维码  
 8228[2021一建视频讲义课件](https://pan.baidu.com/s/1TG8JYHCrcJ8dmJUAD_b75g)  
