@@ -7,7 +7,7 @@
 
 
 
-无偿分享 (持续更新中)
+无偿分享 (持续更新中)  
 
 [手机壁纸风景人物卡通高清原画版745P](https://pan.xunlei.com/s/VMhfR6rXdIPUQdi7HRnDTnSLA1) 提取码：mm5x   
 [表情包静态图丰富超大合集   45300P](https://pan.xunlei.com/s/VMhfRH5tvUUNQkDeULnOL72-A1) 取码码：nmkp  
@@ -22,9 +22,9 @@
 
 
 
-付费资源 (咨询微信：bsdzhp  本叔杂货铺)
+付费资源 (咨询微信：bsdzhp  本叔杂货铺)  
 
-技能技巧
+技能技巧  
 8173[播音主持语言表达口腔控制发声教程](https://pan.baidu.com/s/1EsAtURhFO3Tx8BwUA-bjJw)  
 8182[唱歌教程唱歌技巧速成教学 KTV必备](https://pan.baidu.com/s/1j35b6inuCl4wyYcZeD9fvg)   
 8191[化妆教程美妆教学职场画眉修眉课程](https://pan.baidu.com/s/1La8LNd-_-g9yxRak4w9Qlg)  
@@ -36,7 +36,7 @@
 8055[WPS系列WORDEXCEL PPT三合一全教程](https://pan.baidu.com/s/1TGrhr2MrAIqvlwa0athtLw)   
 8064[营销策划各类活动庆典公关推广案例](https://pan.baidu.com/s/1lOBzIxz_-ei9k63k_ly7fw)  
 
-考证考级
+考证考级  
 8219[2021二建视频讲义课件](https://pan.baidu.com/s/1rLPkKkCbs2Xv794GcVDfsg) 群二维码  
 8228[2021一建视频讲义课件](https://pan.baidu.com/s/1TG8JYHCrcJ8dmJUAD_b75g)  
 8237[2021一造视频讲义课件](https://pan.baidu.com/s/1YxQ_Vi-KxSguCwcjDTpb0g)  
@@ -48,7 +48,7 @@
 8291[2021英语四级讲义课件真题](https://pan.baidu.com/s/1cqvKKhwYI8UzrYjqqMejlQ)  
 8300[2021英语六级讲义课件真题](https://pan.baidu.com/s/1hOcU2GYyYq1HZgBG_OYfmw)  
 
-少儿系列
+少儿系列  
 8119[少儿早教启蒙课程全系列](https://pan.baidu.com/s/1hwey1Jws9vaYiWBGpJPvBw)  
 8128[少儿编程趣味入门级编程](https://pan.baidu.com/s/14Pgc-6hA0kSTPNOBGYztMA)  
 8137[少儿成语故事大全及动画](https://pan.baidu.com/s/1UDFHEO4AtE_q7AnPhaz9oQ)  
@@ -57,7 +57,7 @@
 8164[少儿书法零基础自学课件](https://pan.baidu.com/s/1P1W-uqkdisrk2umTf-MlOg)  
 8173[少儿英语单词口语音标课](https://pan.baidu.com/s/19jKavUVokdFjk5PQG6DwMQ)  
 
-游戏系列
+游戏系列  
 8019[街机PC版拳皇三国合金经典250+合集](https://pan.baidu.com/s/1tIgx0JZzvXaiSkMta2yshA)   
 8028[街机安卓拳皇三国合金经典500+合集](https://pan.baidu.com/s/132tQIMkwgxzBqdGL2llhMQ)  
 8037[小霸王PC魂斗罗冒险岛影子700+合集](https://pan.baidu.com/s/15sJ8YbelQD4uRrqogv6Yeg)  
