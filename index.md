@@ -1,19 +1,21 @@
 ### 热门干货
 
-无偿分享(持续更新中)
+无偿分享 (持续更新中)
 
-[手机壁纸风景人物卡通高清原画版745P](https://pan.xunlei.com/s/VMhfR6rXdIPUQdi7HRnDTnSLA1) 提取码：mm5x  
+[手机壁纸风景人物卡通高清原画版745P](https://pan.xunlei.com/s/VMhfR6rXdIPUQdi7HRnDTnSLA1) 提取码：mm5x   
 [表情包静态图丰富超大合集   45300P](https://pan.xunlei.com/s/VMhfRH5tvUUNQkDeULnOL72-A1) 取码码：nmkp  
 [暴走漫画动态表情包  全系列  4200P](https://pan.xunlei.com/s/VMhfR_D7zBFxHYHVLu21Cl2DA1) 提取码：nx9z  
 [爆闪亮瞎高调醒目系列动态表情包12P](https://pan.xunlei.com/s/VMhfVYC4nYbx_miozLeW2ZebA1) 提取码：ncd5  
+[抖音快手小红书 超级搞笑视频表情包](https://pan.xunlei.com/s/VMhlM1t1MhoQtA1gZRB-KxP6A1) 提取码：cmyv  
 [情侣卡通动漫真人系甜蜜情头 22486P](https://pan.xunlei.com/s/VMhf_v6yf3dIJB3jZvogdXgsA1) 提取码：tqnd  
 [女生穿搭  色彩版型形象   搭配教程](https://pan.xunlei.com/s/VMhl9J9emu9KNGc8BShE_zAcA1) 提取码：3mvx  
 [男生穿搭  色彩版型形象   搭配教程](https://pan.xunlei.com/s/VMhl9X2L-72JWw1bNpDdIux_A1) 提取码：9w47  
-[全网全音乐免费可在线可下载 PC版（WIN+MAC）](https://www.lanzoui.com/b0bf2cfa) 密码glqw  
-[全网全音乐免费可在线可下载手机版  （安卓）](https://soso.lanzoux.com/b00nbytqj)  
+[全网全音乐免费可在线可下载  PC版](https://www.lanzoui.com/b0bf2cfa) 密码glqw  
+[全网全音乐免费可在线可下载  安卓](https://soso.lanzoux.com/b00nbytqj)  
 
 
-付费资源
+
+付费资源 (咨询微信：bsdzhp  本叔杂货铺)
 
 8019[街机PC版拳皇三国合金经典250+合集](https://pan.baidu.com/s/1tIgx0JZzvXaiSkMta2yshA)   
 8028[街机安卓拳皇三国合金经典500+合集](https://pan.baidu.com/s/132tQIMkwgxzBqdGL2llhMQ)  
