@@ -21,7 +21,7 @@
 高分韩剧推荐
 高分日剧推荐
 [高分英剧推荐](https://picabstract-preview-ftn.weiyun.com/ftn_pic_abs_v3/0c208d3fb55bfd409b1508e2b42a887979982d4a69bc805194f122f7367c2b04f6b7ed1785dc306d3b06bc6889a10bdc?pictype=scale&from=30113&version=3.3.3.3&uin=541062960&fname=v2-329e15df5458bf28c2b4eed450ba4d81_r%20%281%29.jpg&size=750)  
-其他高分推荐
+[其他高分推荐](https://gzc-download.weiyun.com/ftn_handler/0d9a67c138b3a839a31ce27123c041a07acebca0ebaf3eb4eaa82905cafc09b4005f74268e2d5edfd55d5720f4d8d80775f42d038c37149f79d341ee9d28d861/v2-329e15df5458bf28c2b4eed450ba4d81_r%20%281%29.jpg?fname=v2-329e15df5458bf28c2b4eed450ba4d81_r%20%281%29.jpg&from=30113&version=3.3.3.3)  
 
 找电影  绝版老电影  最新电影   收藏级电影（蓝光原盘） 
 找电视剧  英美日韩剧
