@@ -24,6 +24,8 @@
 [其他高分推荐](https://movie.douban.com/tag/#/?sort=U&range=0,10&tags=%E7%94%B5%E5%BD%B1,%E6%83%85%E8%89%B2,%E9%9F%A9%E5%9B%BD)  
 [英剧大号推荐](https://picabstract-preview-ftn.weiyun.com/ftn_pic_abs_v3/8bb11b58f52608123db9eedefd417fead8bd4ecdf2d28913f0f170445a58006d3d4df5a88c8e6702d73b826dd323bdf8?pictype=scale&from=30113&version=3.3.3.3&uin=541062960&fname=%E8%8B%B1%E5%89%A7%E6%8E%A8%E8%8D%90%E5%A4%A7%E5%8F%B7.png&size=750)  
 [英剧小号推荐](https://picabstract-preview-ftn.weiyun.com/ftn_pic_abs_v3/e86392f665e133a1916a4262e294691f5f26d649c66ffd741bd7c215dab49703266263968ce0934b14ba08a14b52bb2a?pictype=scale&from=30113&version=3.3.3.3&uin=541062960&fname=%E8%8B%B1%E5%89%A7%E6%8E%A8%E8%8D%90.png&size=750)  
+[英剧bmp推荐](https://picabstract-preview-ftn.weiyun.com/ftn_pic_abs_v3/5e243d4905c2c37d5c47a802f3f0c699aa89c34611196b3f87323fb61d4a2e0926335a130a40f30cf777e515d339aafb?pictype=scale&from=30113&version=3.3.3.3&uin=541062960&fname=%E8%8B%B1%E5%89%A7%E6%8E%A8%E8%8D%90.bmp&size=750)  
+
 
 找电影  绝版老电影  最新电影   收藏级电影（蓝光原盘） 
 找电视剧  英美日韩剧
